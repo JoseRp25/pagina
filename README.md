@@ -1,2 +1,2 @@
-# pagina pagwebcv https://joserp25.github.io/pagina/
+# paginahttps://joserp25.github.io/pagina/
 
