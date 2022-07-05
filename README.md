@@ -1,2 +1,2 @@
-# paginahttps://joserp25.github.io/pagina/
+# pagina: https://joserp25.github.io/pagina/
 
